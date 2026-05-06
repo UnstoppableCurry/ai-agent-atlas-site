@@ -18,8 +18,7 @@ leave the app.
 
 ## How to contact us
 
-For privacy questions, email **support@aiagent-atlas.app**.
-(Replace this placeholder with your real address before submitting.)
+For privacy questions, email **wangtianxin666@icloud.com**.
 
 ## Updates to this policy
 

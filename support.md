@@ -2,9 +2,7 @@
 
 For bug reports, feature requests, or general questions:
 
-**support@aiagent-atlas.app**
-
-(Replace this placeholder with your real email before submitting to Apple.)
+**wangtianxin666@icloud.com**
 
 Response time: within 48 hours, usually faster.
 
